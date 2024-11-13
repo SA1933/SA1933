@@ -1,0 +1,5 @@
+- User-friendly interface 🎨
+- Cross-platform compatibility 🖥️📱
+- High performance ⚡
+- Customizable settings 🔧
+- ![@azariq_maulana](https://www.instagram.com/azariq_maulana/)📸✨
